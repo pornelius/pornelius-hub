@@ -2,7 +2,7 @@
 
 
 pornelius lol
-tjis is basically a github test 
+this is basically a github test 
 
 contact info:
 https://twitter.com/the_cornelius1
